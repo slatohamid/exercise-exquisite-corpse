@@ -2,3 +2,5 @@
 
 *Il était une fois, dans les rues animées de Paris, une rumeur excitante circulait. Les habitants murmuraient avec anticipation à l'approche imminente de Zlatan Ibrahimović, le légendaire footballeur, de retour dans la Ville Lumière. Les drapeaux du Paris Saint-Germain flottaient dans l'air, tandis que le Parc des Princes se préparait à accueillir à bras ouverts son héros prodigue.*
 
+Pour son retour il avait plus **faim de _victoire_** que quiconque, une envie de prouver qu'il était toujours lui. Lui qui a émerveillé une génération allait prouver qu'il était toujours capable de se battre au **meilleur niveau**. Ses *rivaux* trembleront en entendant son nom.
+
