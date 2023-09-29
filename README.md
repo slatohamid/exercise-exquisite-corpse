@@ -16,3 +16,5 @@ Sur le terrain, Zlatan se comportait comme un maestro, marquant des buts spectac
 Hors du terrain, Zlatan consacrait son temps à des œuvres caritatives, montrant son côté généreux et humain. Son retour à Paris fut bien plus qu'un simple come-back sportif, c'était un récit de résilience, de succès et de bonté.
 
 Zlatan Ibrahimović avait trouvé un équilibre remarquable entre son rôle de superstar du football et son engagement envers la communauté parisienne. Il visitait les hôpitaux pour enfants, finançait des programmes éducatifs pour les jeunes défavorisés, et s'impliquait activement dans des projets visant à améliorer la vie des habitants de Paris.
+
+Cependant, au fur et à mesure que les siècles passent, la tentation du pouvoir finit par corrompre certains membres de la lignée des disciples. Un conflit interne éclate, menaçant de briser l'unité du groupe et de plonger à nouveau le monde dans l'obscurité. L'explorateur légendaire se voit alors contraint de faire un choix déchirant : sauver l'équilibre fragile en détruisant le parchemin ou risquer que le pouvoir tombe entre de mauvaises mains une fois de plus, entraînant une guerre magique dévastatrice.
