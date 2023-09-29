@@ -4,3 +4,5 @@
 
 Pour son retour il avait plus **faim de _victoire_** que quiconque, une envie de prouver qu'il était toujours lui. Lui qui a émerveillé une génération allait prouver qu'il était toujours capable de se battre au **meilleur niveau**. Ses *rivaux* trembleront en entendant son nom.
 
+Finalement, **le pingouin à roulettes** a récupéré ses patins grâce à l'aide des lapins danseurs, mais il a laissé derrière lui une empreinte lunaire en forme de cœur pour commémorer son passage. Il est reparti vers la Terre en laissant un spectacle de lumières colorées dans le sillage de son retour, illuminant la nuit lunaire pour les générations futures
+
