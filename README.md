@@ -14,3 +14,5 @@ Dans les vestiaires, Zlatan réaffirma son amour pour Paris, jurant de tout donn
 Sur le terrain, Zlatan se comportait comme un maestro, marquant des buts spectaculaires qui semblaient défier les lois de la physique. Chaque match était une performance digne d'une légende vivante.
 
 Hors du terrain, Zlatan consacrait son temps à des œuvres caritatives, montrant son côté généreux et humain. Son retour à Paris fut bien plus qu'un simple come-back sportif, c'était un récit de résilience, de succès et de bonté.
+
+Zlatan Ibrahimović avait trouvé un équilibre remarquable entre son rôle de superstar du football et son engagement envers la communauté parisienne. Il visitait les hôpitaux pour enfants, finançait des programmes éducatifs pour les jeunes défavorisés, et s'impliquait activement dans des projets visant à améliorer la vie des habitants de Paris.
